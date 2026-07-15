@@ -1,1 +1,1 @@
-<img src="Joy and Whimsy.jpy">
+<img src="Joy and Whimsy.jpg">
