@@ -1,0 +1,1 @@
+<img src="Joy and Whimsy.jpy">
